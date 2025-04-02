@@ -9,7 +9,7 @@
 <br>永久入口：https://91ds.club
 <br>需要使用vpn或梯子等上网科学方式
 <br>官方电报（电报）群：https://t.me/dycg03
-<br>官方推特： https: //x.com/91ds001
+<br>官方推特： https://x.com/91ds001
 <br>
 <br>新地址获取
 <br>dycgdizhi@gmail.com
