@@ -10,7 +10,7 @@
 <br>需要使用vpn或梯子等上网科学方式
 <br>官方电报（电报）群：https://t.me/dycg03
 <br>官方推特： https://x.com/91ds001
-<br>
+<br>官方QQ群：http://f.qjjnx38.cn/t/iYf6
 <br>新地址获取
 <br>dycgdizhi@gmail.com
 <br>发任何致邮箱都会自动回复最新地址。获取地址后如打不开等问题，可截图再次回复邮箱，以便我们能第一时间了解情况，让解决料友们不再使用
